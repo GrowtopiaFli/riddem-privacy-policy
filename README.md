@@ -1,2 +1,0 @@
-# Riddem
-Privacy Policy
