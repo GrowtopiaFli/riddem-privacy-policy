@@ -1,2 +1,2 @@
-# riddem-privacy-policy
+# Riddem
 Privacy Policy
